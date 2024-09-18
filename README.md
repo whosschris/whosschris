@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing
 
 - 😄 Pronouns: he/him 
-- ⚡ Fun fact: i know nothing about coding
+- ⚡ Fun fact: i dont know much about coding
 -
 - 🐀🧀 dont discuss cheese with rats
 <!---
